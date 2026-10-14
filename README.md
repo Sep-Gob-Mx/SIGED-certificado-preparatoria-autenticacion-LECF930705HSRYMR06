@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LECF930705HSRYMR06
+LECF930705HSRYMR06
